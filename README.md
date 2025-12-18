@@ -21,6 +21,8 @@
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=bc5f8ecc">
   <br/>
   <br/>
+<sup> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eik0n0klasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sup>
+  <br/>
 <img align="center" height="50" src="https://carcuvorous.carrd.co/assets/images/gallery18/1031eb3f.png?v=72ce5086">
   <br/>
   <br/>
