@@ -25,6 +25,8 @@
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/080d159a.png?v=bc5f8ecc">
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=bc5f8ecc">
   <br/>
+<img align="center" src="https://komarev.com/ghpvc/?username=eik0n0klasmic&color=00bd00&style=plastic&label=𖤐+🇫​​🇷​​🇪​​🇪​​🇩​+​🇧​​🇪​​🇦​​🇷​​🇪​​🇷​​🇸+𐕣​">
+  <br/>
 <sub> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eik0n0klasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sub>
   <br/>
 <sup> <a href="https://github.com/xxhe4rtstringz">host shithub</a> ⠀𖤐⠀ <a href="https://github.com/riisiingtiide">headm8 shithub</a> </sup>
