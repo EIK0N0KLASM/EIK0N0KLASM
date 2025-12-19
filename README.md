@@ -20,12 +20,12 @@
   <br/>
 <sup>ʟᴇᴛ ᴛʜᴇ ʟɪɢʜᴛ ɪɴ ᴀɴᴅ ʙʀɪɢʜᴛᴇɴ ᴛʜᴇ ꜱʜᴀᴅᴇꜱ ᴛʜᴀᴛ ꜱʟᴇᴇᴘ ɪɴꜱɪᴅᴇ ʏᴏᴜ!</b></sup>
   <br/>
-i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
-  <br/>
   <br/>
 <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery22/2e8d7cfb.png?v=72ce5086">
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery03/080d159a.png?v=bc5f8ecc">
 <img align="center" src="https://f3verdream.carrd.co/assets/images/gallery02/8069d3f7.gif?v=bc5f8ecc">
+    <br/>
+i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
   <br/>
 <img align="center" src="https://komarev.com/ghpvc/?username=eik0n0klasmic&color=00bd00&style=plastic&label=𖤐+🇫​​🇷​​🇪​​🇪​​🇩​+​🇧​​🇪​​🇦​​🇷​​🇪​​🇷​​🇸+𐕣​">
   <br/>
