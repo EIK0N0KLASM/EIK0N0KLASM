@@ -33,6 +33,8 @@ i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
   <br/>
 <sup> <a href="https://github.com/xxhe4rtstringz">host shithub</a> ⠀𖤐⠀ <a href="https://github.com/riisiingtiide">headm8 shithub</a> </sup>
   <br/>
+<sup> <a href=https://www.youtube.com/watch?v=5MMKIrkVcOg>my username's origin</a>
+  <br/>
 <img align="center" height="50" src="https://carcuvorous.carrd.co/assets/images/gallery18/1031eb3f.png?v=72ce5086">
   <br/>
   <br/>
