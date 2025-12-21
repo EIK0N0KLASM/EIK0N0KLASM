@@ -27,6 +27,7 @@
     <br/>
 i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
   <br/>
+  <br/>
 <img align="center" src="https://komarev.com/ghpvc/?username=eik0n0klasmic&color=00bd00&style=plastic&label=𖤐+🇫​​🇷​​🇪​​🇪​​🇩​+​🇧​​🇪​​🇦​​🇷​​🇪​​🇷​​🇸+𐕣​">
   <br/>
 <sub> <a href="https://2wo2ime.atabook.org">host atabook</a> ⠀♱⠀ <a href="https://eikonoklasmic.carrd.co">MY carrd</a> ⠀♱⠀ <a href="https://xxhe4rtstringz.carrd.co/">our interests</a> </sub>
@@ -36,7 +37,6 @@ i <i>LOVE</i> to argue i'm a fierce warden of the rblx area
 <sup> <a href=https://www.youtube.com/watch?v=5MMKIrkVcOg>my username's origin</a>
   <br/>
 <img align="center" height="50" src="https://carcuvorous.carrd.co/assets/images/gallery18/1031eb3f.png?v=72ce5086">
-  <br/>
   <br/>
   <ins>if thou thinketh me corny just know i was <i>BORN</i> on the cob</ins>
   <br/>
